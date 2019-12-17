@@ -1,4 +1,4 @@
-# I am feeling ver strange lately
+# I am feeling very strange lately
 ## but thats not bad
 ### I don't know what it means
 *I am plugging along, doing well but never sure why.*
